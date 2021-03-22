@@ -1,2 +1,2 @@
 # tokobunga
-toko bunga tugas uas :v
+toko bunga tugas uas
